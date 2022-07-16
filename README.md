@@ -1,3 +1,7 @@
-# loket
-# loket
-"# loket" 
+```
+MAULANA HASANUDIN KHALIM
+312010106
+TI.20.D.1
+```
+
+## LINK YOUTUBE : https://www.youtube.com/watch?v=deQS-ZzeoKs
